@@ -1,1 +1,1 @@
-# xcxlegend.github.io
+welcome to xcx's home page
